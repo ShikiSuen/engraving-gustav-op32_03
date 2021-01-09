@@ -1,6 +1,6 @@
 # Gustav Holst - Mercury Symphony (Op.32-03)
 
-Engraved by Shiki Suen in late-2019 @ Shobi Music College (#193006046)
+Engraved by Shiki Suen in late-2019
 
 ----
 
